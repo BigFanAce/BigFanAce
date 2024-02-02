@@ -1,10 +1,10 @@
 - 👋 Hi, I’m @BigFanAce
-- 👀 I’m interested in women
-- 🌱 I’m currently Tall and sexy lol😉
-- 💞️ I’m looking to collaborate on life
+- 👀 I’m interested in
+- 🌱 I’m currently 
+- 💞️ I’m looking to collaborate on
 - 📫 How to reach me 330-789-6425
-- 😄 Pronouns: I lengthy and think 
-- ⚡ Fun fact: It's 11
+- 😄 Pronouns:
+- ⚡ Fun fact:
 
 <!---
 BigFanAce/BigFanAce is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
